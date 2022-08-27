@@ -1,1 +1,1 @@
-# JuiceBrand :-  https://dhruvbadukle.github.io/JuiceBrand/
+# JuiceBrand :- https://dhruvbadukle.github.io/JuiceBrand/
